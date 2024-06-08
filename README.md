@@ -22,3 +22,4 @@ Multi-channel integration for omnichannel support
 Enterprise-grade security and compliance measures
 Priority support and dedicated account management
 starting at $599/month
+Account number : 2334 5567 2290
